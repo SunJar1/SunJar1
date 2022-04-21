@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SunJar1
 - 👀 I’m interested in developers O_O
-- 🌱 I’m currently learning it recroute
+- 🌱 I’m currently learning it recruitment
 - 💞️ I’m looking to collaborate on yes
 - 📫 How to reach me sanzhar.khassenov@mechta.kz
 
